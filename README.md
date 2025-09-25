@@ -1,6 +1,6 @@
 # 7星云官网地址
 
-最新地址：[spacex2045.net](https://yes.spacex2045net.icu/#/register?code=lg46wUSg)
+最新地址：[spacex2045.net](https://abc.star2045.net/#/register?code=lg46wUSg)
 
 ## 7星云介绍
 
